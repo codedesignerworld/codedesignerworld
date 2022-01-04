@@ -15,7 +15,7 @@
 
 - 📄 Know about my experiences [https://www.instagram.com/codedesignerworld](https://www.instagram.com/codedesignerworld)
 
-- ⚡ Fun fact **I think I am Made**
+- ⚡ Fun fact **I think I am Made To Learn!**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
